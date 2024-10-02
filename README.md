@@ -1,1 +1,3 @@
-# Torsdagsopgaver-4
+Emil Kriegel
+
+cph-ek218@cphbusiness.dk
